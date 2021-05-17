@@ -7,7 +7,7 @@ on:
     branches: [ main ]
   schedule:
     # * is a special character in YAML so you have to quote this string
-    - cron:  '02 8 * * *'
+    - cron:  '02,30 8,20 * * *'
 
 jobs:
   build:
