@@ -3,11 +3,9 @@
 name: Java CI With Maven
 
 on:
-  push:
-    branches: [ main ]
   schedule:
     # * is a special character in YAML so you have to quote this string
-    - cron:  '02,42 8,20 * * *'
+    - cron:  '02 8 * * *'
 
 jobs:
   build:
