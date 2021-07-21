@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2021-07-22 | [Castel del Monte, Apulia, Italy (© Toni Spagone/Alamy)](https://cn.bing.com/th?id=OHR.CasteldelMonte_EN-US0394527485_1920x1080.jpg) 
+
 2021-07-21 | [Composite image of the moon (© Prathamesh Jaju)](https://cn.bing.com/th?id=OHR.PrathameshJaju_EN-US8876008160_1920x1080.jpg) 
 
 2021-07-20 | [Colorful alleyway in the medina of Tétouan, Morocco (© Jan Wlodarczyk/eStock Photo)](https://cn.bing.com/th?id=OHR.Tetouan_EN-US7379560261_1920x1080.jpg) 
