@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2021-08-04 | [Wachsenburg Castle near Erfurt, Germany (© Radius Images/Offset by Shutterstock)](https://cn.bing.com/th?id=OHR.WachsenburgCastle_EN-US0450745616_1920x1080.jpg) 
+
 2021-08-03 | [Mesas, Upper Cathedral Valley, Capitol Reef National Park, Utah (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.UpperCathedral_EN-US7580471789_1920x1080.jpg) 
 
 2021-08-02 | [Barley field in East Lothian, Scotland (© Scott Masterton/plainpicture)](https://cn.bing.com/th?id=OHR.LammasDay_EN-US7320561829_1920x1080.jpg) 
