@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2021-10-27 | [Red fox in the Black Forest of Germany (© Klaus Echle/Minden Pictures)](https://cn.bing.com/th?id=OHR.RedFoxBlackForest_EN-US4823848176_1920x1080.jpg) 
+
 2021-10-26 | [Dyavolski Most (Devil's Bridge) over the Arda River in Bulgaria (© Petar Mladenov/Alamy)](https://cn.bing.com/th?id=OHR.BulgariaDevilBridge_EN-US4705163344_1920x1080.jpg) 
 
 2021-10-25 | [Bavljenac Island, Croatia (© Julien Duval/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.Bavljenac_EN-US8692148480_1920x1080.jpg) 
