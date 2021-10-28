@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2021-10-29 | [Necropolis near Dargavs, North Ossetia, Russia (© Yakov Oskanov/Shutterstock)](https://cn.bing.com/th?id=OHR.Dargavs_EN-US4957085337_1920x1080.jpg) 
+
 2021-10-28 | [A pumpkin patch in Newton, Massachusetts (© Frank Debonis/EyeEm/Alamy)](https://cn.bing.com/th?id=OHR.NewtonPumpkins_EN-US4897949591_1920x1080.jpg) 
 
 2021-10-27 | [Red fox in the Black Forest of Germany (© Klaus Echle/Minden Pictures)](https://cn.bing.com/th?id=OHR.RedFoxBlackForest_EN-US4823848176_1920x1080.jpg) 
