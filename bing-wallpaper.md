@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-03-21 | [Javan tree frog, Indonesia (© kuritafsheen/Getty Images)](https://cn.bing.com/th?id=OHR.WorldFrogDay_EN-US9497103821_1920x1080.jpg) 
+
 2022-03-20 | [Chicagohenge sunset, Chicago, Illinois (© Razvan Sera/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.Chicagohenge_EN-US9296950779_1920x1080.jpg) 
 
 2022-03-19 | [Multicolored powders for sale during Holi (© Nuno Valadas/Getty Images)](https://cn.bing.com/th?id=OHR.Holi2022_EN-US9217068703_1920x1080.jpg) 
