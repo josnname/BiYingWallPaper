@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-04-11 | [Caracal cubs (© Marion Vollborn/Minden Pictures)](https://cn.bing.com/th?id=OHR.Caracal_EN-US4384489380_1920x1080.jpg) 
+
 2022-04-10 | [Arvada Skatepark, Arvada, Colorado (© Jon Paciaroni/Getty Images)](https://cn.bing.com/th?id=OHR.LightPainting_EN-US4249414714_1920x1080.jpg) 
 
 2022-04-09 | [Coast near Ponta Delgada, Madeira, Portugal (© Jan Wlodarczyk/Alamy)](https://cn.bing.com/th?id=OHR.PontaDelgada_EN-US4010436071_1920x1080.jpg) 
