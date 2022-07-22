@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-07-23 | [Our Lady of the Rocks and Saint George Island in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)](https://cn.bing.com/th?id=OHR.SGIMontenegro_EN-US4280095085_1920x1080.jpg) 
+
 2022-07-22 | [Abbey Gardens in Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.AbbeyGardens_EN-US3622669026_1920x1080.jpg) 
 
 2022-07-21 | [Composite photo showing the phases of the moon (© Delpixart/Getty Images)](https://cn.bing.com/th?id=OHR.MoonPhases_EN-US3514261526_1920x1080.jpg) 
