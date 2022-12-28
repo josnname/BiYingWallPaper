@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-29 | [Maloja, Switzerland (© Roberto Moiola/Getty)](https://cn.bing.com/th?id=OHR.ChiesaBianca_EN-US6649530996_1920x1080.jpg) 
+
 2022-12-28 | [Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.BlueLagoon_EN-US6577382520_1920x1080.jpg) 
 
 2022-12-27 | [Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)](https://cn.bing.com/th?id=OHR.BeverleyWestwood_EN-US6464100653_1920x1080.jpg) 
