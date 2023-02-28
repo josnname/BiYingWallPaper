@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-01 | [Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)](https://cn.bing.com/th?id=OHR.AtraniAmalfi_EN-US0095082556_1920x1080.jpg) 
+
 2023-02-28 | [Polar bears asleep in Canada (© David Pike/Minden Pictures)](https://cn.bing.com/th?id=OHR.PolarBearFrost_EN-US9888741440_1920x1080.jpg) 
 
 2023-02-27 | [Suspension bridge in Tambopata National Reserve, Amazon Basin, Peru (© Pere Rubi/Getty Images)](https://cn.bing.com/th?id=OHR.CanopyPeru_EN-US9715922202_1920x1080.jpg) 
