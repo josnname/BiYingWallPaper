@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-10 | [Lithuanian Easter eggs (© fotomem/Getty Images)](https://cn.bing.com/th?id=OHR.LithuanianEggs_EN-US5086451033_1920x1080.jpg) 
+
 2023-04-09 | [The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)](https://cn.bing.com/th?id=OHR.NIrelandGiants_EN-US3269727738_1920x1080.jpg) 
 
 2023-04-08 | [Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)](https://cn.bing.com/th?id=OHR.KitsAspen_EN-US6734104933_1920x1080.jpg) 
