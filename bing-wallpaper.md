@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-18 | ['Paddle Out for Unity' event in San Diego, California (© Brandon Colbert Photography/Getty Images)](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1920x1080.jpg) 
+
 2023-06-17 | [Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)](https://cn.bing.com/th?id=OHR.HawksbillTurtle_EN-US0640232978_1920x1080.jpg) 
 
 2023-06-16 | [Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)](https://cn.bing.com/th?id=OHR.SmokyFireflies_EN-US8809086301_1920x1080.jpg) 
