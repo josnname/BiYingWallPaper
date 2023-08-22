@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-23 | [Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_1920x1080.jpg) 
+
 2023-08-22 | [Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_1920x1080.jpg) 
 
 2023-08-21 | [Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)](https://cn.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_1920x1080.jpg) 
