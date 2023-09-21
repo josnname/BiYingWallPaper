@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-22 | [Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_1920x1080.jpg) 
+
 2023-09-21 | [Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_1920x1080.jpg) 
 
 2023-09-20 | [Splügen Pass, Graubünden, Switzerland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_1920x1080.jpg) 
