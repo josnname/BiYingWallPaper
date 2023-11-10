@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-11 | [Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1920x1080.jpg) 
+
 2023-11-10 | [Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_1920x1080.jpg) 
 
 2023-11-09 | [West Indian manatee mother and baby, Three Sisters Springs, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.ManateeMama_EN-US7376333243_1920x1080.jpg) 
