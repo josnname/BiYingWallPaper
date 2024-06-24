@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-25 | [Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_1920x1080.jpg) 
+
 2024-06-24 | [Aerial view of an intersection in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_1920x1080.jpg) 
 
 2024-06-23 | [Amazon rainforest, Brazil (© Claus Meyer/plainpicture)](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_1920x1080.jpg) 
