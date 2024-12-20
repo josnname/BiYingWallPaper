@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-21 | [Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_1920x1080.jpg) 
+
 2024-12-20 | [Christmas market in Sibiu, Romania (© Calin Stan/Alamy)](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_1920x1080.jpg) 
 
 2024-12-19 | [English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_1920x1080.jpg) 
