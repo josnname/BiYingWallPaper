@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-01 | [Paro Taktsang, a Buddhist monastery in Bhutan (© Baron Reznik/Getty Images)](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1920x1080.jpg) 
+
 2025-02-28 | [Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.PolarCub_EN-US2740470421_1920x1080.jpg) 
 
 2025-02-27 | [Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_1920x1080.jpg) 
