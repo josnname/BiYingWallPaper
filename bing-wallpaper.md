@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-23 | [Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_1920x1080.jpg) 
+
 2025-03-22 | [Mist over a lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)](https://cn.bing.com/th?id=OHR.DanumValley_EN-US1030783251_1920x1080.jpg) 
 
 2025-03-21 | [Spring daffodils glowing in morning light (© LedyX/Shutterstock)](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_1920x1080.jpg) 
