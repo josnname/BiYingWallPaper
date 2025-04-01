@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-02 | [Tree frog, Costa Rica (© Ondrej Prosicky/Shutterstock)](https://cn.bing.com/th?id=OHR.TicanFrog_EN-US3006346741_1920x1080.jpg) 
+
 2025-04-01 | [Ostuni at dusk, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1920x1080.jpg) 
 
 2025-03-31 | [Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)](https://cn.bing.com/th?id=OHR.SydneyHarbour_EN-US2885246621_1920x1080.jpg) 
