@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-07 | [An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)](https://cn.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_1920x1080.jpg) 
+
 2025-05-06 | [Paper flags strung over a street in San Miguel de Allende, Mexico (© William Zinn/Getty Images)](https://cn.bing.com/th?id=OHR.CincoFlags_EN-US5873749093_1920x1080.jpg) 
 
 2025-05-05 | [Plaza de España, Seville, Spain (© Horia Merla/Getty Images)](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_1920x1080.jpg) 
