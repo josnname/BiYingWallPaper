@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-28 | [Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_1920x1080.jpg) 
+
 2025-05-26 | [Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1920x1080.jpg) 
 
 2025-05-25 | [Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)](https://cn.bing.com/th?id=OHR.JotunheimenPark_EN-US4200824377_1920x1080.jpg) 
