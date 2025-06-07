@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-08 | [Summit of Pine Mountain, Angeles National Forest, California (© Matthew Kuhns/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1920x1080.jpg) 
+
 2025-06-07 | [Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1920x1080.jpg) 
 
 2025-06-06 | [Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_1920x1080.jpg) 
