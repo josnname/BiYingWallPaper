@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-23 | [Amazon rainforest, Ecuador (© Mark Fox/Getty Images)](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1920x1080.jpg) 
+
 2025-06-22 | [Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1920x1080.jpg) 
 
 2025-06-21 | [Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_1920x1080.jpg) 
