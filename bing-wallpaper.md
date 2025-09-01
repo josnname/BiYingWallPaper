@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-02 | [Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1920x1080.jpg) 
+
 2025-09-01 | [Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1920x1080.jpg) 
 
 2025-08-31 | [Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1920x1080.jpg) 
