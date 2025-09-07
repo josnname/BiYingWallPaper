@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-08 | [Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1920x1080.jpg) 
+
 2025-09-07 | [Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_1920x1080.jpg) 
 
 2025-09-06 | [Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1920x1080.jpg) 
