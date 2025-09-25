@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-26 | [Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1920x1080.jpg) 
+
 2025-09-25 | [Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)](https://cn.bing.com/th?id=OHR.BearLodge_EN-US9061134971_1920x1080.jpg) 
 
 2025-09-24 | [Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1920x1080.jpg) 
