@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-25 | [Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1920x1080.jpg) 
+
 2025-10-24 | [Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1920x1080.jpg) 
 
 2025-10-23 | [Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1920x1080.jpg) 
