@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-23 | [Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1920x1080.jpg) 
+
 2025-11-22 | [Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_1920x1080.jpg) 
 
 2025-11-21 | [Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_1920x1080.jpg) 
