@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-11 | [The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_1920x1080.jpg) 
+
 2026-01-10 | [Giant redwood trees in Muir Woods National Monument, California (© photo by canderson/Getty Images)](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_1920x1080.jpg) 
 
 2026-01-09 | [Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1920x1080.jpg) 
