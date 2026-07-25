@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-26 | [Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1920x1080.jpg) 
+
 2026-07-25 | [Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_1920x1080.jpg) 
 
 2026-07-24 | [Pink dahlia flower (© Harald Biebel/Getty Images)](https://cn.bing.com/th?id=OHR.PinkDahlia_EN-US1957205704_1920x1080.jpg) 
