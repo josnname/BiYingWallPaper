@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-04 | [Coyote Buttes, Vermilion Cliffs National Monument, Arizona (© James Hager/Getty Images)](https://cn.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_1920x1080.jpg) 
+
 2026-09-03 | [Traditional beach huts, Southwold, Suffolk Heritage Coast, England (© stevendocwra/Getty Images)](https://cn.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_1920x1080.jpg) 
 
 2026-09-02 | [Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1920x1080.jpg) 
