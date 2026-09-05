@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-06 | [Green-crowned brilliant hummingbirds feeding on lobster-claw flowers, Costa Rica (© Paul Hobson/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1920x1080.jpg) 
+
 2026-09-05 | [Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_1920x1080.jpg) 
 
 2026-09-04 | [Coyote Buttes, Vermilion Cliffs National Monument, Arizona (© James Hager/Getty Images)](https://cn.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_1920x1080.jpg) 
