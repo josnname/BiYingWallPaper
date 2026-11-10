@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-11 | [Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_1920x1080.jpg) 
+
 2026-11-10 | [Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1920x1080.jpg) 
 
 2026-11-09 | [Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_1920x1080.jpg) 
