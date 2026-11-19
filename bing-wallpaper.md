@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-20 | [The "Body of Knowledge" sculpture by Jaume Plensa at Goethe University in Frankfurt, Germany (© Todamo/Shutterstock)](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_1920x1080.jpg) 
+
 2026-11-19 | [Pair of barn owls (© Zahoor Salmi/Getty Images)](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_1920x1080.jpg) 
 
 2026-11-18 | [Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1920x1080.jpg) 
